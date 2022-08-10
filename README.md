@@ -14,8 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 --> Male 
---> 20 
---> He/Him 
---> In a 🌈 relationship
+20 
+He/Him 
+In a 🌈 relationship
 
 My names is James and I look here for mod tools. I love D&B,BFDI,II,Tamagotchi, & Mario
