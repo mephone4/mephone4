@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey!
 
 <!--
 **mephone4/mephone4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -18,4 +18,4 @@ Here are some ideas to get you started:
 He/Him 
 In a 🌈 relationship
 
-Hey everyone, my names is James and I look here for mod tools. I love D&B,BFDI,II,Tamagotchi, & Mario
+My names is James and I look here for mod tools. I love D&B,BFDI,II,Tamagotchi, & Mario
