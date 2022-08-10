@@ -13,4 +13,9 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+--> Male 
+20 
+He/Him 
+In a 🌈 relationship
+
+Hey everyone, my names is James and I look here for mod tools. I love D&B,BFDI,II,Tamagotchi, & Mario
